@@ -1,3 +1,3 @@
 # ReminderAppp
-  My youtube link: https://youtube.com/shorts/k6Y3wgvDIG8?feature=share
+  My youtube link: https://youtube.com/shorts/O6wc-HmMjIc?feature=share
   
